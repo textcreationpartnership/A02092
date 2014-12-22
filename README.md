@@ -35,18 +35,26 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A disputation, betweene a hee conny-catcher, and a shee conny-catcher whether a theefe or a whoore, 
+
+1. To all Gentlemen, Marchants, Apprentises,
+and Countrey Farmers health.
+
 #####Body#####
 
-1. The conuersion of an English
+1. A disputation between Laurence a Foist
+and faire Nan a Traffique, whether a Whore or a
+Theefe is most preiuditiall.
+THus Country men, you haue heard the disputation between these
+two cousoning companions, wherein I h
+    _ The conuersion of an English
 Courtizan.
 
-1. A watch-word to wanton Maidens.
+    _ A watch-word to wanton Maidens.
 
-1. A pleasant discourse, how a wise wanton by her husbands gentle
+    _ A pleasant discourse, how a wise wanton by her husbands gentle
 warning, became to be a modest Matron.
 
-1. A merry Tale taken not far from Fetter Lane end, of a new
+    _ A merry Tale taken not far from Fetter Lane end, of a new
 found Conny-catcher, that was Conny-catcht
 himselfe.
 
